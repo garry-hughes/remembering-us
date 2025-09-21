@@ -1,2 +1,2 @@
 # remembering-us
-family biographies and storie 
+family biographies and stories
